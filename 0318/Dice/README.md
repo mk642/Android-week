@@ -1,2 +1,3 @@
 
-![Screenshot_20240318_222029](https://github.com/mk642/Android-week/assets/53805997/9400349d-a9d7-480e-bbb1-7f940680db50)
+
+![Screenshot_20240318_222029](https://github.com/mk642/Android-week/assets/53805997/016a2f08-28b2-421d-ba91-9a8e86b5f752)
